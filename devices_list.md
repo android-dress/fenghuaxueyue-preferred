@@ -18,6 +18,6 @@ iPhone 6s Plus | N66 | | | | | | |
 Xperia Z5 Premium | Satsuki | 2018/09/06 | 淘宝 OK 家 | 32 天 | | 2018/10/08 | 咸鱼自刀 |
 夏普 AQUOS P1 | SHV34 | | | | | | | 
 LG V20 | Elsa | | | | | | | 
-LG V30 | Joan | | | | | | | 
+LG V30 | Joan | 第二次购入为 2018/08/11 | 第二次为咸鱼购入 | | | 第二次出手为 2018/08/23 | 均为咸鱼 | 
 Pixel 2 XL | Taimen | | | | | 2018/12/29 | | 
 小米 MIX 2S | Polaris | | | | | | | 
