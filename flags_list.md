@@ -68,6 +68,10 @@ flag:
 
 https://t.me/AndroidDress/694887
 
+> 好想嘲笑米粉啊😯 
+
+https://twitter.com/FenghuaxueyueCN/status/1070225249243869184
+
 结果:
 > Shaomi Max 3 窝 TM 吹爆  
 
