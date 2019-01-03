@@ -85,6 +85,9 @@ https://twitter.com/FenghuaxueyueCN/status/1069491241186816000
 
 https://t.me/AndroidDress/695391
 
+> 我可是资深Miboy
+https://t.me/AndroidDress/696751
+
 ### Android 恨
 flag:
 > 再也不会用Android ，啊～再也不会走在这路上，啊～啊～别跟我说Android 有多香～那是永远都不会回去的地方～   
