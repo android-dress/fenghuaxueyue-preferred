@@ -30,6 +30,21 @@ https://t.me/AndroidDress/524749
 
 https://t.me/AndroidDress/517950
 
+### 2019 事件
+
+ flag:
+ > 立下 Flag：2019 年不买任何电子产品，不花钱买电子产品。   
+ https://t.me/AndroidDress/694589  
+ > 总之，Fenghuaxueyue 2019 不需要购机。  
+ https://t.me/AndroidDress/694468  
+
+ 结果:
+ > 我怎么这么丢人啊  
+ https://t.me/AndroidDress/694618  
+ > Type C 和 5500mah ，我买来当充电宝的  
+ https://t.me/AndroidDress/694640
+ > 我先去解锁了  
+ https://t.me/AndroidDress/694644
 
 
 
