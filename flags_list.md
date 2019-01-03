@@ -72,6 +72,10 @@ https://t.me/AndroidDress/694887
 
 https://twitter.com/FenghuaxueyueCN/status/1070225249243869184
 
+> 哈哈哈哈笑死我了，米粉真是我每天的快乐源泉
+
+https://twitter.com/FenghuaxueyueCN/status/1069491241186816000
+
 结果:
 > Shaomi Max 3 窝 TM 吹爆  
 
