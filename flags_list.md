@@ -25,6 +25,10 @@ https://t.me/AndroidDress/353957
 
 https://t.me/AndroidDress/524749
 
+> 会啊，Note 9 我也要用三年，iPhone X 我已经用了一年零一个月多了 
+
+https://t.me/AndroidDress/680672
+
 结果:
 > 我要用三年 …三个月…三天…（声音逐渐变弱
 
