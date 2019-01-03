@@ -19,6 +19,6 @@ Xperia Z5 Premium | Satsuki | 2018/09/06 | 淘宝 OK 家 | 32 天 | | 2018/10/08
 LG V20 | Elsa | | | | | |
 LG V30 | Joan | | | | | |
 Pixel 2 XL | Taimen | | | | | 2018/12/29 |
-三星 Note 9 | Crown | 2018/11/16 | | 至今存活 | | / | / |
+三星 Note 9 | Crown | 2018/11/15 | 未知 | 依然存活 | 依然吹爆 | / | / | Samsung Galaxy Note 9 真香。。。
 小米 MIX 2S | Polaris | | | | | |
 红米 Note 5 | Whyred | | | | | |
