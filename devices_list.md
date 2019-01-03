@@ -7,7 +7,7 @@ Xperia XZ1 | Poplar | 2018/7/18 | 咸鱼二手 | 83 天 | 约为 80 天 | 2018/1
 iPhone X | D22 | 2017/10/04 | Apple 官网 | 依然存活 | 约为 278 天 | / | / | iPhone X 的 OLED 是最好的
 iPhone 7 Plus| D11 | | | | | |
 iPhone 8 Plus| D21 | | | | | |
-三星 Note 8 | Crown | | | | | |
+三星 Note 8 | Great | | | | | |
 iPhone 6s Plus | N66 | | | | | |
 一加 6 | Enchilada | | | | | |
 红米 5 Plus | Vince | | | | | |
