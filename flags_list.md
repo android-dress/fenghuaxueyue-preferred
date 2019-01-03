@@ -57,6 +57,10 @@ https://t.me/AndroidDress/517950
  > 我先去解锁了  
  
  https://t.me/AndroidDress/694644
+ 
+ > 哪位大佬能推荐我一台 600 元左右刷机友好能刷 Android 9 第三方的机器哇
+ 
+ https://t.me/AndroidDress/696502
 
 
 
