@@ -7,16 +7,17 @@ Xperia XZ1 | Poplar | 2018/7/18 | 咸鱼二手 | 83 天 | 约为 80 天 | 2018/1
 iPhone X | | | | | | |
 iPhone 7 Plus| | | | | | |
 iPhone 8 Plus| | | | | | |
-三星 Note 8 | | | | | | |
+三星 Note 8 | Crown | | | | | |
 iPhone 6s Plus | | | | | | |
-一加 6 | | | | | | |
-红米 5 Plus | | | | | | |
-红米 6 | | | | | | |
-小米 Mix2 | | | | | | |
-小米 6x | | | | | | |
-Xperia Z5 Premium | | | | | | |
+一加 6 | Enchilada | | | | | |
+红米 5 Plus | Vince | | | | | |
+红米 6 | Cereus | | | | | |
+小米 MIX 2 | Chiron | | | | | |
+小米 6X | Wayne | | | | | |
+Xperia Z5 Premium | Satsuki | | | | | |
 夏普 shv34 | | | | | | |
-LG V20 | | | | | | |
-LG V30 | | | | | | |
-Pixel 2 XL | | | | | | |
-三星 Note 9 | | | | | | |
+LG V20 | Elsa | | | | | |
+LG V30 | Joan | | | | | |
+Pixel 2 XL | Taimen | | | | | |
+三星 Note 9 | Crown | | | | | |
+小米 MIX 2S | Polaris | | | | | |
