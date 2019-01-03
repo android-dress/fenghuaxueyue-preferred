@@ -15,7 +15,7 @@ iPhone 6s Plus | N66 | | | | | |
 小米 MIX 2 | Chiron | | | | | |
 小米 6X | Wayne | | | | | |
 Xperia Z5 Premium | Satsuki | | | | | |
-夏普 shv34 | SHV34 | | | | | |
+夏普 AQUOS P1 | SHV34 | | | | | |
 LG V20 | Elsa | | | | | |
 LG V30 | Joan | | | | | |
 Pixel 2 XL | Taimen | | | | | |
