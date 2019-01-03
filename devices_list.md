@@ -21,3 +21,4 @@ LG V30 | Joan | | | | | |
 Pixel 2 XL | Taimen | | | | | |
 三星 Note 9 | Crown | | | | | |
 小米 MIX 2S | Polaris | | | | | |
+红米 Note 5 | Whyred | | | | | |
