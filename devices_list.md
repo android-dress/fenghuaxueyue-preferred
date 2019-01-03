@@ -12,7 +12,7 @@ iPhone 8 Plus| D21 | | | | | | |
 iPhone 6s Plus | N66 | | | | | | | 
 一加 6 | Enchilada | | | | | | | 
 红米 5 Plus | Vince | | | | | | | 
-红米 6 | Cereus | | | | | | | 
+红米 6 | Cereus | 2018/7/2 | 小米之家 | 2 天 | 0 天 | 2018/7/4 | 闲鱼自刀 | 耽误我一天上班时间
 小米 MIX 2 | Chiron | | | | | | | 
 小米 6X | Wayne | | | | | | | 
 Xperia Z5 Premium | Satsuki | 2018/09/06 | 淘宝 OK 家 | 32 天 | | 2018/10/08 | 咸鱼自刀 |
