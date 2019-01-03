@@ -96,6 +96,17 @@ https://t.me/AndroidDress/690478
 
 https://t.me/AndroidDress/688103
 
+### 真香
+flag:
+> Note 8 应该也不会买   
+
+https://t.me/AndroidDress/145295
+
+结果:
+> Note 8 买买买，除了电池没啥短板的样子  
+
+https://t.me/AndroidDress/340336
+
 
 
 
