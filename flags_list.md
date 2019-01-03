@@ -62,6 +62,16 @@ https://t.me/AndroidDress/517950
  
  https://t.me/AndroidDress/696502
 
+### 米粉系列
+flag:
+> 好想嘲笑米粉啊  
+
+https://t.me/AndroidDress/694887
+
+结果:
+> Shaomi Max 3 窝 TM 吹爆  
+
+https://t.me/AndroidDress/695391
 
 
 
