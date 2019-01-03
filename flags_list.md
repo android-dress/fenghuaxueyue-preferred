@@ -73,8 +73,20 @@ https://t.me/AndroidDress/694887
 
 https://t.me/AndroidDress/695391
 
+### Android 恨
+flag:
+> 再也不会用Android ，啊～再也不会走在这路上，啊～啊～别跟我说Android 有多香～那是永远都不会回去的地方～   
 
+https://twitter.com/FenghuaxueyueCN/status/1049505695895175168
 
+结果:
+> 今天上午给 Note 9 背面擦干净戴保护壳时，真的发现钱花到位了，剩下的就是绝赞的体验了  
+
+https://t.me/AndroidDress/690478
+
+> 果然 Samsung Galaxy Note 9 才是窝的菜，一对比才知道  
+
+https://t.me/AndroidDress/688103
 
 
 
