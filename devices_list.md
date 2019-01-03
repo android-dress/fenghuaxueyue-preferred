@@ -18,7 +18,7 @@ Xperia Z5 Premium | Satsuki | 2018/09/06 | 淘宝 OK 家 | 32 天 | | 2018/10/08
 夏普 AQUOS P1 | SHV34 | | | | | |
 LG V20 | Elsa | | | | | |
 LG V30 | Joan | | | | | |
-Pixel 2 XL | Taimen | | | | | |
+Pixel 2 XL | Taimen | | | | 2018/12/28 | |
 三星 Note 9 | Crown | | | | | |
 小米 MIX 2S | Polaris | | | | | |
 红米 Note 5 | Whyred | | | | | |
