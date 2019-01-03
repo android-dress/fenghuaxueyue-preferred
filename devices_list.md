@@ -14,7 +14,7 @@ iPhone 6s Plus | N66 | | | | | |
 红米 6 | Cereus | | | | | |
 小米 MIX 2 | Chiron | | | | | |
 小米 6X | Wayne | | | | | |
-Xperia Z5 Premium | Satsuki | | | | | 2018/10/15 | |
+Xperia Z5 Premium | Satsuki | | | | | 2018/10/08 | |
 夏普 AQUOS P1 | SHV34 | | | | | |
 LG V20 | Elsa | | | | | |
 LG V30 | Joan | | | | | |
