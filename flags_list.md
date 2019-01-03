@@ -61,6 +61,10 @@ https://t.me/AndroidDress/517950
  > 哪位大佬能推荐我一台 600 元左右刷机友好能刷 Android 9 第三方的机器哇
  
  https://t.me/AndroidDress/696502
+ 
+ > PH-1 已付款
+ 
+ https://t.me/AndroidDress/696692
 
 ### 米粉系列
 flag:
