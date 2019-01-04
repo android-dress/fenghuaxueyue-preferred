@@ -1,7 +1,5 @@
 # 立 flag 记录
 
-
-
 ### 三年系列
 
 flag:
@@ -89,6 +87,10 @@ https://t.me/AndroidDress/695391
 
 https://t.me/AndroidDress/696751
 
+> 想充值做个Miboy…
+
+https://t.me/AndroidDress/460665
+
 ### Android 恨
 flag:
 > 再也不会用Android ，啊～再也不会走在这路上，啊～啊～别跟我说Android 有多香～那是永远都不会回去的地方～   
@@ -114,9 +116,3 @@ https://t.me/AndroidDress/145295
 > Note 8 买买买，除了电池没啥短板的样子  
 
 https://t.me/AndroidDress/340336
-
-
-
-
-
-
