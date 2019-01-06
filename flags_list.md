@@ -42,7 +42,11 @@ https://t.me/AndroidDress/517950
  > 总之，Fenghuaxueyue 2019 不需要购机。  
  
  https://t.me/AndroidDress/694468  
-
+ 
+ > 2019 不买电子垃圾了   
+ 
+ https://t.me/AndroidDress/700066  
+ 
  结果:
  > 我怎么这么丢人啊  
  
@@ -63,6 +67,10 @@ https://t.me/AndroidDress/517950
  > PH-1 已付款
  
  https://t.me/AndroidDress/696692
+
+ > 那我还是买点电子垃圾好了
+ 
+ https://t.me/AndroidDress/700077
 
 ### 米粉系列
 flag:
