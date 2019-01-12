@@ -13,6 +13,7 @@ https://t.me/AndroidDress/702153
 |     iPhone X      |  D22  | 2017/10/04 | 407 天 | Apple 官网 | 除了刷社交 app 啥也不能干 |
 |    三星 Note 9    | Crown | 2018/11/15 | 至今 | 水货实体店  |        窝 TM 吹爆         |
 | Essential Phone 1 | Mata  | 2019/01/03 | 至今 | 闲鱼二手  |        窝 TM 吹爆         |
+|      三星 S9      |  Star | 2019/01/?? | 至今 | 有待考证  |   三星的机器怎么这么好刷机   |
 
 
 
